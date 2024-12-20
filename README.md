@@ -1,1 +1,1 @@
-# webwizard.github.io
+# webwiza.github.io
